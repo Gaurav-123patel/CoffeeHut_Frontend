@@ -1,0 +1,1 @@
+10 % discount for new loyal user through online payment
